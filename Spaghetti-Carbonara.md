@@ -1,1 +1,1 @@
-Recept of Spaghetti Carbonara
+Recepe of Spaghetti Carbonara
